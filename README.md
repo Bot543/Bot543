@@ -1,8 +1,6 @@
 ### Hi there 👋
 ### How are you doing 
-### Message me on WhatsApp on how to create a bot +2348179731497
-<!--
-**Bot543/Bot543** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Message me on WhatsApp on how to create a bot +2348168285554
 
 Here are some ideas to get you started:
 
